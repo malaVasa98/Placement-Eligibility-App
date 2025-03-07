@@ -1,0 +1,1 @@
+[PLACEMENT ELIGIBILITY APP README.pdf](https://github.com/user-attachments/files/19122798/PLACEMENT.ELIGIBILITY.APP.README.pdf)
